@@ -1,2 +1,2 @@
 # Curriculum
- Just my CVA 
+ Just my *incredibly outdated* CVA 
